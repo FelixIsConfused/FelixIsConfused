@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FelixIsConfused
+- 👀 I’m interested in anime, music of all types I'm not too picky, gaming, kinda just existing ect.
+- 🌱 I’m currently learning how to create minecraft mobs, and also coding
+- 💞️ I’m looking to collaborate on mob creation
+- 📫 How to reach me? Well, I Discord, so if you wanna reach me this way I'm FelixIsConfused#2366 on it
